@@ -7,12 +7,14 @@
 
 
 >Hi there! I am Artuur Bruwier. I live in Lendelede, West-Flanders, Belgium. Music is my biggest passion. I play drums in a band, I make electronic music and I listen to music all day long. Next to music, I'm also very obsessed by film. I like film, camera, acting and so on. If I wasn't studying Graphic and Digital Media here in Ghent, I'd probably be studying for 'Actor' in Maastricht. 
+>
 ----------
 
 
 ##PORTFOLIO
 
-At this moment I do not have a proper portfolio online.
+>At this moment I do not have a proper portfolio online.
+>
 ---
 
 
